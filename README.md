@@ -1,2 +1,4 @@
 # SS1
-SS1's homeworks 
+Đỗ Đức Dũng   
+1801040036
+
